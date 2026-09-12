@@ -16,10 +16,10 @@ Talk only when absolutely necessary; I don't like talkative people.
 
               
 📌 HATE
-- noisy
 - used and ignored
 - gishi/SaneKana
 - fakeness
+- math
 
        
  📌 FAVORITE
