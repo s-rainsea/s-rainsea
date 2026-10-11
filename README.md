@@ -42,12 +42,10 @@
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nud5lskfqwuiiq6ugzgdr42tre&cover_image=true&theme=apple&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark)](https://github.com/kittinan/spotify-github-profile) 
 
-  ──୨ৎ─── ⋆｡°✩°｡⋆ ───୨ৎ──
+        ──୨ৎ─── ⋆｡°✩°｡⋆ ───୨ৎ──
 
-   𝑡𝑖𝑛𝑦 𝑓𝑙𝑜𝑤𝑒𝑟𝑠, 𝑞𝑢𝑖𝑒𝑡 𝑤𝑖𝑠ℎ𝑒𝑠.
+        𝑡𝑖𝑛𝑦 𝑓𝑙𝑜𝑤𝑒𝑟𝑠, 𝑞𝑢𝑖𝑒𝑡 𝑤𝑖𝑠ℎ𝑒𝑠.
 
-   𓍯 𝑠𝑒𝑒 𝑦𝑜𝑢 𝑎𝑟𝑜𝑢𝑛𝑑, 𝑙𝑜𝑣𝑒. 𓍯
+       𓍯 𝑠𝑒𝑒 𝑦𝑜𝑢 𝑎𝑟𝑜𝑢𝑛𝑑, 𝑙𝑜𝑣𝑒. 𓍯
 
-     ୨୧ ₊˚⊹♡⊹˚₊ ୨୧
-
-</div>
+            ୨୧ ₊˚⊹♡⊹˚₊ ୨୧
