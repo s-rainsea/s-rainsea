@@ -26,14 +26,14 @@
    
    ♡   𝑠𝑜𝑢𝑙  ⟡  just a dreamer in a world too loud
 
-            ⋆ ˚｡⋆୨୧˚ 𓏲 ๋࣭ ˚୨୧⋆｡˚ ⋆
+               ⋆ ˚｡⋆୨୧˚ 𓏲 ๋࣭ ˚୨୧⋆｡˚ ⋆
 
   𝓪 𝓹𝓸𝓮𝓶 𝓷𝓸 𝓸𝓷𝓮 𝓪𝓼𝓴𝓮𝓭 𝓯𝓸𝓻
 
   “perhaps the moon keeps all
    the wishes we forgot to make.”
 
-             ☾ ⋆⁺₊⋆ ☁︎ ⋆⁺₊⋆ ☾
+                  ☾ ⋆⁺₊⋆ ☁︎ ⋆⁺₊⋆ ☾
 
   𓆩 ♡ 𓆪 𝒏𝒐𝒘 𝒑𝒍𝒂𝒚𝒊𝒏𝒈 𓆩 ♡ 𓆪 
 
