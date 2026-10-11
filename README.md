@@ -33,7 +33,7 @@
   “perhaps the moon keeps all
    the wishes we forgot to make.”
 
-                  ☾ ⋆⁺₊⋆ ☁︎ ⋆⁺₊⋆ ☾
+               ☾ ⋆⁺₊⋆ ☁︎ ⋆⁺₊⋆ ☾
 
   𓆩 ♡ 𓆪 𝒏𝒐𝒘 𝒑𝒍𝒂𝒚𝒊𝒏𝒈 𓆩 ♡ 𓆪 
 
