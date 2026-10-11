@@ -9,7 +9,6 @@
       𝒎𝒚 𝒆𝒚𝒆𝒔 𝒔𝒕𝒊𝒍𝒍 𝒔𝒆𝒂𝒓𝒄𝒉
          𝒇𝒐𝒓 𝒚𝒐𝒖, 𝑳𝒊𝒏𝒉. ❞ 𐙚
          
-         <p align="center">
   <img src="maow.gif" width="100%">
 </p>
 <div align="center">
