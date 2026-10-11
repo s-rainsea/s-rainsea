@@ -27,7 +27,7 @@
 
 ╭ 𓂃 𓈒𓏸 𐙚 𓏸𓈒 𓂃 ╮
 
-   𖹭  𝑛𝑎𝑚𝑒  ⟡  Sylvan
+   𖹭  𝑛𝑎𝑚𝑒  ⟡  Seila
    ୨୧  𝑚𝑜𝑜𝑑  ⟡  daydreaming
    ☁︎  𝑠𝑘𝑦   ⟡  cloudy & quiet
    ♡   𝑠𝑜𝑢𝑙  ⟡  just a dreamer in a world too loud.
